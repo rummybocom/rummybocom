@@ -1,4 +1,5 @@
 India’s Most Trusted Rummy App
+
 Rummy game maintains a special place in the millions of Indians due to its timeless charm and versatility. Rummy is loved and played by millions of players for its simplicity and entertainment. It has the unique ability to captivate players of all ages with its easy gameplay while delivering endless excitement and challenges that keep them returning for more.
 
 Welcome to RummyBo, India's best online rummy platform. At RummyBo, we aim to provide a rummy gaming experience that preserves the nature of Rummy's simplicity and heightens the excitement, making it an experience like no other in online rummy gaming.
